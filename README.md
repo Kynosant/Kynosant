@@ -1,1 +1,1 @@
-### hey! Pls accept my banner for aliucord
+### hey! Pls accept my banner for aliucord.
